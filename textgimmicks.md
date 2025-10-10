@@ -16,3 +16,7 @@
 ![4](https://files.catbox.moe/vk0mjq.png)
 <br>
 —  BE MY FRIEND NOW NOW NOW NOW
+<br>
+<br>
+![5](https://files.catbox.moe/i8we8m.png)
+—  noope not the case, you see i was misinformed on fictkins and thought they were sysfakers so i had them in my dni, but i do thank you for reminding me to fix that! my current rentry (where you saw that) is outdated and i need to remake it. apologies for the misunderstanding!!
