@@ -21,3 +21,8 @@
 ![5](https://files.catbox.moe/i8we8m.png)
 <br>
 —  noope not the case, you see i was misinformed on fictkins and thought they were sysfakers so i had them in my dni, but i do thank you for reminding me to fix that! my current rentry (where you saw that) is outdated and i need to remake it. apologies for the misunderstanding!!
+<br>
+<br>
+![6](https://files.catbox.moe/f3rwxl.png)
+<br>
+—  BE MY FRIEND NOW I WANT FRIENDS I LOVE FRIENDSLOP BMF!!!!!!!!!!! NOW!!!!!!!!!!!!!! GO!!!!!!NOW!!!!!! add me ok i @1xshed on like everything
